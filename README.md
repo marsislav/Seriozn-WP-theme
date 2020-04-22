@@ -1,0 +1,1 @@
+# Seriozn-WP-theme
